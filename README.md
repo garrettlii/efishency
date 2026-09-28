@@ -1,2 +1,2 @@
 # efishency
-efishency privacy policy
+efishency's privacy policy
